@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Rohith 
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning KCT Automobile engineer
+- 🌱 I’m currently learning in KCT <Automobile engineer>
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me rohithpalani024@gmail.com
 
